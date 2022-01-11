@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Oli
+- 👀 I’m interested in women
+- 🌱 I’m currently learning how to get women
+- 💞️ I’m looking to collaborate on women
+- 📫 How to reach me pidgeon mail
